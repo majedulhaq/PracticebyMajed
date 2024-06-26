@@ -1,0 +1,1 @@
+wifi password jana ase ni ?
